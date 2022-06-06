@@ -17,6 +17,6 @@ Join HBH: [https://hbh.sh/registration](https://hbh.sh/registration)
 
 Explore HBH: [https://hbh.sh/home](https://hbh.sh/home) 
 
-Join our Discord server: [https://discord.gg/VJFxC5HP](https://discord.gg/VJFxC5HP)
+Join our Discord server: [https://discord.gg/dZJmCmTYwJ](https://discord.gg/dZJmCmTYwJ)
 
 
